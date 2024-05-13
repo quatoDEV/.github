@@ -1,5 +1,5 @@
 ## [WELCOME//]
 
-Welcome to cosmIT! This is a [NOT LICENSED] company which is mostly specialized in patching, drawing, designing and ETC.
+Welcome to cosmIT's public organization. The team that designs, creates; there's so much opportunities in our universe of ideas. Filled with so much brainstorming, and thought. 
 
-### Most of the plus
+Art/anything from us that is deemed to be released soon will be published here. 
